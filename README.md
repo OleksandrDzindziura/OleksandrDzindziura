@@ -1,1 +1,1 @@
-![Banner](https://giphy.com/gifs/YQitE4YNQNahy)
+![Banner](https://media.giphy.com/media/QuIxFwQo0RMT1tASlV/giphy.gif)
